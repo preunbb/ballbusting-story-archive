@@ -1,0 +1,19 @@
+---
+description: Git commits in forum-archives must use only the preunbb identity
+alwaysApply: true
+---
+
+# Commits: preunbb only
+
+All commits in this repo must be authored and committed as **preunbb <boozlejam@gmail.com>**.
+
+Hooks in `.githooks/` block any other identity on commit and push. Agents must not commit as sfendell or anyone else; do not use `--no-verify` unless the user explicitly requests it.
+
+Set identity locally for this repo only:
+
+```bash
+git config user.name preunbb
+git config user.email boozlejam@gmail.com
+```
+
+Never set global git config on the user's machine.

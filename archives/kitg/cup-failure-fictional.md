@@ -1,0 +1,35 @@
+---
+title: Cup Failure (Fictional)
+author: Alex Boi
+posted: "June 19, 2014 at 1:30pm"
+source: "https://kickedinthegroin.ning.com/group/bb-storytellers/forum/topics/cup-failure-fictional"
+slug: cup-failure-fictional
+---
+I am on the wrestling team for my college, a part of our required uniform is a protective cup. We wasn't in an official[
+
+![](https://storage.ning.com/topology/rest/1.0/file/get/1802104282?profile=original)
+
+](https://storage.ning.com/topology/rest/1.0/file/get/1802104282?profile=original)meeting so I was wearing some black sweats and a t-shirt. I had my cup on underneath my underwear. This is what it looked like. Anyways I was having some problems with a girl in my building, nothing major just a couple of yelling matches. She had been our floor in our restroom, which is strictly a boys floor and restroom so I told her to get out and that is when our problems started. Well I just finished practice and had just walked in the restroom on our floor when I saw her standing there using the sink. I said, "You need to leave, this is a guys restroom. Unless you have a dick, get the fuck out." She looked at me and rolled her eyes then said "Well guess we both gotta leave." she laughed and I responded "I got a big enough dick to satisfy your black hole" grabbing the bulge of my cup whilst saying it. She dropped something in the sink and walked over to me, getting in my face. I thought she was going to say something but she grabbed the cup. This startled me as I wasn't expecting it, she was squeezing which didn't hurt but made me uncomfortable. I grabbed her hand and said "Let go of my cup." She swung her other hand catching me in the jaw. I stumbled backwards and she came at me again, sending her knee into my cup causing me to yelp. It didn't hurt just was disconcerting. She reached up and grabbed my head, at this point as was beyond her being a girl and the whole boys shouldn't fight girls thing, so a grabbed her hand and twisted. I forced her to turn around and was bending her over. "Are you ready to give" I said to her, she responded by using her other hand to grabbed my cup. I wasn't sure why she tried but I grabbed her hand and jerked it away. When I did this my cup was jerked upward and both of my balls fell out the bottom. Then snapped back down locking both of my balls out of my cup. I didn't realize this had happened so I began using her arm to leverage her closer to the ground. She struggled and lunged her hand at my crotch grabbing my cup and trying to pull it down. This is when I noticed it, my balls were caught out of my cup, her pulling down was causing the cup to push my balls to the bottom of my sack. I don't think she could see me but my eyes were bugling and I had to do something. "Stupid fucking cup." She muttered I grabbed her and on my cup, then put pressure on her other hand pushing her closer to the ground. Wh
+
+en she gave in, she attempted to grab my cup again but grabbed my sweat pants and pulled them to the ground with her. I let go of her and tried to bend and grab my sweat pants but when I bent over my cup bent to squishing my balls. I jerked straight up quickly, gasping a breath. She looked up at me, her face right next to my feet. I was standing there in black american eagle boxer briefs (Picture of them is below) any was with the exception
+
+[
+
+![](https://storage.ning.com/topology/rest/1.0/file/get/1802104394?profile=RESIZE_1024x1024)
+
+](https://storage.ning.com/topology/rest/1.0/file/get/1802104394?profile=original)
+
+ of the bulge my cup made and from what I imagine to egg shaped bulges at the bottom. She raised up and punched the bulge in my underwear. I attempted to double over but the cup squished my balls in my briefs so instead I fell flat on my back, my hands cover my balls that I had notice were swelling making matters much more uncomfortable. She stood over me, and laughed and said "Ironic, what was made to protect those balls and make you stronger become your weakness."[  
+](https://storage.ning.com/topology/rest/1.0/file/get/1802104394?profile=original)
+
+(Beginning Fictional Story)
+
+She kicked away my pants, leaving me in my underwear and shirt. My balls had a throb in them from being hit, but I took advantage of her distraction with my pants to slide my hands down and slip my balls back in my cup. Then I jumped up, and moved towards her. She kneed the bottom of my cup where my balls were. I laughed and pulled her into a headlock, she reached behind her and grabbed my cup. She got frustrated after realizing that they were safe again, she elbowed my stomach. This hurt quite a bit so I swung her around, she grabbed a hold of my shirt as I swung her and ripped it off of me. (Picture of me and my abs are below, sorry about scratches lol) I slammed into the counter and she came at my again 
+
+![](https://storage.ning.com/topology/rest/1.0/file/get/1802104553?profile=original)
+
+![](https://storage.ning.com/topology/rest/1.0/file/get/1802104576?profile=original)
+
+shoving her arm into my neck causing me to lean back against the counter (and my crotch to jut out) both of my hands went up to her arm on my neck. Her other hand slid down my abs into my underwear, she pushed the cup upwards and slid her hand inside. I started to panic, and slapped my hand down over my crotch trying to protect my balls, her hand was protected by my cup. She was moving her hand around trying to get around my dick to my balls. "You're hung boy" she said, bad part about it was that I was getting hard. I gave up on trying to hit her hand and pushed my hand down my underwear into my cup, this was a mistake. When I did this I pushed hand further down squishing my balls to the bottom of my cup. I yelped and fell to the floor. Her hand sliding out as I fell. I was in pain but my dick was at the full 9 1/2 inch length, and was jutting out the top of my cup. "No wonder why you're such a dick, your big ass one thinks for you. That face you make when you're pain is cute tho." I tackled her unexpectedly and pushed her up against the counter, and was planning on punching her until my cup slammed into the side of counter, grinding it against my throbbing cock. It wasn't as painful as being hit in the balls but still hurt. I backed away and grabbed my dick, then she noticed that part of it was jutting out of the top of my underwear. She smiled and jumped of the counter planting her hand on my cup, pushing it against my cock. I  thought she was trying to hurt my dick, but she used the fact the cups edges were pushed up away from body to get leverage enough to pull the bottom out. My balls dropped out the bottom as the cup snapped back against my dick. So I ran at her and picked her up her hand grabbed my cup, but the only thing in it was the base  of my dick and she was to high up to reach my balls. She smiled at me and grabbed my still hard as a rock dick, and bent it sideways folding it at the mid point. I dropped her and my hands grabbed my dick. Whilst she grabbed her real goal, my balls which were no longer in protected by my cup............................
+
+MORE TO COME LATER

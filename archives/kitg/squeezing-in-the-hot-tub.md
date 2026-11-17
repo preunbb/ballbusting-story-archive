@@ -1,0 +1,44 @@
+---
+title: Squeezing In The Hot Tub
+author: Michael Deresh
+posted: "December 16, 2015 at 2:40pm"
+source: "https://kickedinthegroin.ning.com/group/bb-storytellers/forum/topics/squeezing-in-the-hot-tub"
+slug: squeezing-in-the-hot-tub
+---
+We sat in the hot tub for a few minutes, talking and teasing each other, and it was apparent we were all incredibly horny now. We no longer had any qualms about touching each other's bodies. The hot tub was more secluded so we were a lot less shy about enjoying the other couple's company. It wasn't long before the girl suggested a new contest, and by the sounds of it I was really starting to think she had some sadistic tendencies.
+
+It was a very simple endurance contest. Each woman would pair off with the opposite boy, reach into their trunks, grab their balls and squeeze until both boys gave in, the guy giving up first being the loser. They had to come up with a good incentive for holding out for a while, so the winning boy got the other girl as a slave for however long he held out for plus one minute. As well the losing girl would lose one piece of clothing. We would keep playing until one of the girls was completely stripped. The losing boy had to be the girls slave for the same period of time as the winner had his woman as a slave.
+
+Round one began, and I could tell I was already at a disadvantage as my balls were still sore from the kicks earlier. She wrapped her arm around me and with her right hand reached into my trunks, felt around a bit, and grabbed my left nut firmly, and with a smirk. My girlfriend decided to go for the two handed approach.
+
+"I'm not going to lose." She whispered confidently. She then counted down from three and the squeezing started. She started easy for the first few seconds and then with a look of pure glee she started to really squeeze, clamping down hard on my ball. I was trying my best to stay in, thinking mostly about her breasts and how I'd like to see them, feel them, watch them jiggle.
+
+I could feel the pain start to hit my stomach, sinking in. She wrapped her other hand around me and pulled me in close. I began to feel my cock rise against all odds as I felt the warmth of her flesh against mine. It just made me want her more, so I tried to endure, finally though I had to cave as the pain in the pit of my stomach was too much and I begged for mercy. With a twist and a shake she lot go, and she smirked as I dealt with the pain. I looked over and my girlfriend was practically straddling him to keep him going, rubbing against him as both hands were in his trunks. I began to suspect she wasn't squeezing as hard as she could. Finally he gave in and time was called; just over four minutes.
+
+My girlfriend looked at him with a huge grin and took her top off, letting him admire her pert breasts. She would be his slave for over five minutes, using the clock by the tub as a timer. And I had to be his girlfriend's slave for the same amount of time.
+
+"Tell you what," she said "if you can get me to orgasm in five minutes I'll go easy on you next round. But if you don't you bet your balls I'm going to make you pay." she then proceeded to sit on the edge of the hot tub and remove her bottoms.
+
+I started kissing and licking her thighs, and then very quickly moving on to her clit flicking it and teasing it with my tongue. I began moving it in a semicircular motion to her moans and delight. I moved down and put my tongue in her, twirling it around, teasing her opening. I loved the taste of her, it was getting me so worked up tasting another girl while mine was feet away. My finger took over on her clit, gently rubbing it around. After a minute I could feel her legs close in on me, wrapping around me tightly, pushing my head further in. All of a sudden time was called. Shit I thought, so close. She moved away from me, with a great big grin on her face.
+
+"Fuck. I was so close too. Poor you, now you're going to feel the force of my frustration; or rather your ball is. " She pulled her bottoms back on and got back in the tub.
+
+I glanced at my girlfriend and her new master, whatever they had been doing they had just finished up, but judging from his still very erect cock I could guess he didn't get a chance to finish either. She came over to me and confided she was just sucking his cock, teasing it, and she said next round she'll let him gush into her mouth. She says she really doesn't expect me to win next round either, so don't try too hard as she doesn't want me to get too hurt. And she whispered as she walked away, she'll make sure to swallow all his cum. She looked back at me and winked as we got ready for the next round.
+
+I faced off with my opponent once again, though this time she grabbed my right testicle with her arm, with a very firm grip. At the second the countdown ended she started to squeeze full force, clamping on to my ball tightly. I tried to think of her body, her sucking my cock, to help get me through it, but it was too much. In less then a minute I was ready to give in, but as I opened my mouth to surrender she gagged it with her other hand.
+
+"Ahh, not so quick." She smirked, "I still have some frustration to get out on your poor ball. Let me finish." It wasn't a question, or even a command, but a statement. She had my ball tight, I wasn't going anywhere. I nodded in agreement and she took her hand off my mouth. She reached her hand down into my trunk and began stroking my cock. She reached in and kissed me, and that wonderful mouth definitely helped with the pain. After a minute she stopped stroking me and took my hand under her suit, letting me finger her to her delight.
+
+"Now make me cum, and only then does this stop."
+
+I fingered her pussy with my one hand, while the other played with her clit, trying desperately to make her come. I could tell she was enjoying it as she grabbed onto my other ball and was basically grinding into me as she squeezed. Very quickly after she came she let go and I was allowed to quit. I was just thinking I was lucky that was the last round because I couldn't take anymore, however as I soon learned my girlfriend got a little unexpectedly sadistic and squeezed him into submission rather quickly, and they were watching us for a while.
+
+"Damn, guess I lose my top, " She muttered as she quickly removed it. "and I'm all yours for the next four and a half minutes." She smiled as she cozied up to me, putting her breasts in my face, letting me finally suck on her nipples. Of course the only thing I could think about was there was going to be another round, at least for the first ten seconds or so of enjoying her body.
+
+I kissed her, felt her ass, so smooth and firm, so lovely. I enjoyed the next few minutes of her, as she slowly stroked my cock, me too afraid to cum knowing there will be another round. Still really enjoyed having her fawn over me, and she brought me right to the edge before time was up. I'm pretty sure my girlfriend came, as she looked flushed and drained before starting the next and final round.
+
+"I'm not planning on losing my bottoms, so I'll make this quick. "She told me as we began the third round of squeezing testicles. Already they were pretty sore, but after the rest in between rounds, and having her all over me, it actually felt like they could take more. This time I really wanted to win, so that I could finally get to cum, without worrying about another round. Sadly it was not meant to be, as she squeezed both my balls at once, alternating which one got squeezed hard, and then after a minute or so she suddenly got a death grip on both of them as she leaned in for another kiss. I'm sure she could see the whites of my eyes, but I held in there for the kiss, when she stopped I gave in. I looked over to the others and by the look on his face she was really trying as well. He gave in as soon as he noticed I lost.
+
+He made my girl stand up out of the tub and remove the bottom of her suit, now she was fully nude. She stood there for a full minute, doing poses that he had her do, twirling around, stretching. He then let her back in the tub. As her slave I was forced to do the same, stand fully nude, do jumping jacks, even jack myself off for thirty seconds, still not able to come. At least I was only a slave for a few minutes, then I could put my trunks back on, she lost her whole suit in a bet and wasn't getting it back soon. Luckily by the same rules the other girl had to remain topless as well, so there were two great sets of tits for us guys to enjoy.
+
+We soaked in the heat, which kind of helped with my now horribly sore balls, and talked, getting to know each other a bit better. We played around a bit, lots of random boob grabs, from everyone. The girls even put on a little show for us, rubbing their breasts together then suddenly kissing and making out. We all wanted somewhere more private so we headed off to the sauna.

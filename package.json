@@ -1,0 +1,14 @@
+{
+  "name": "forum-archives",
+  "private": true,
+  "type": "module",
+  "scripts": {
+    "scrape:kitg": "node scrapers/kitg/scrape-kitg-bb-stories.mjs",
+    "prepare": "git rev-parse --is-inside-work-tree >/dev/null 2>&1 && git config core.hooksPath .githooks || true"
+  },
+  "dependencies": {
+    "cheerio": "^1.0.0",
+    "playwright": "^1.49.0",
+    "turndown": "^7.2.0"
+  }
+}

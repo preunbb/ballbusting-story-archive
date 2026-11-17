@@ -1,0 +1,104 @@
+---
+title: Staring
+author: John Dotson
+posted: "October 13, 2026 at 1:32pm"
+source: "https://kickedinthegroin.ning.com/group/bb-storytellers/forum/topics/staring"
+slug: staring
+---
+I jogged along the path, enjoying the summer warmth and the view. It was a cloudless sunny day, the birds were chirping, and my jogging ‘buddy’ was especially beautiful today.
+
+She was brown-haired and late twenties, her ponytail bobbing behind her as she jogged ahead of me. Her yoga shorts were so tight they were practically painted on, and short enough that I could see a sliver of delicious cheek cleavage jiggling out beneath her shorts with each step she took. Her top was a tight blue tee, short enough to show off her entire midriff. I jogged on, keeping my pace strategically lower than hers so I could keep drinking in the view. Despite my jogging, my cock was half-hard. A keen observer would’ve seen my very modest bulge flapping in my shorts as I ran…if they were looking especially closely.
+
+It took me a few seconds to hear her shouting over the music in my earbuds. I took them out.
+
+“Are you serious?”
+
+“What?” I said innocently. Her breasts were small but perky, and from the way her nipples poked through her top, she was braless.
+
+“You have been eyefucking me for a mile. Can you please just stop staring?”
+
+I blushed. “I wasn't staring,” I lied badly.
+
+“Okay. Then you can wait here for like, ten minutes, until I'm too far away for you to see me.”
+
+“What?! I'm not waiting…”
+
+“Maybe twenty minutes; I don’t know how good your eyesight is, and I don’t want to risk it.” She was looking at me like I was something she'd stepped in. “I can't stand losers staring at my ass.”
+
+I couldn’t sit around for twenty minutes. I mean, I could — an unemployed, single guy like myself doesn’t exactly have anything else going on — but…I didn’t want to. I especially didn’t want her to leave my sight; watching her jiggly ass was the highlight of my day. Life hadn’t been going too well lately, and I needed a pick-me-up. A sunny day in the park. Some exercise and serotonin. A tight ass in a pair of teasing yoga shorts. I deserved this, and it didn’t cost her anything for me just to *look*.
+
+“Hey. You don’t own this park. I’m not just waiting around because you imagined you could feel me looking at your butt.”
+
+“I didn’t imagine it. I *can* feel your tiny-dick stare. ”
+
+My face burned at the accuracy of her assessment. She rolled her eyes.
+
+“You’re not even making eye contact now.”
+
+I guiltily looked up from her poking nipples. “Yes I am.”
+
+“Dude. Just admit it. This doesn’t have to be a big deal. Just admit you’re a perverted loser, admit your little dick makes you unable to interact with women normally, apologize for wasting my time, and wait here for a few minutes while I get far enough away from you I never have to think about your loser ass again. And don’t you *dare* look at my butt while I’m getting away from you, perv. Do all of that, and we're fine. This doesn't have to be difficult for you.”
+
+“No.” My embarrassment had shifted to rage. How dare this stuck-up skinny bitch boss me around like this? I was a man. A fully grown man, despite the argument to the contrary my undersized cock and balls presented.
+
+Girls had mocked me, demeaned me, belittled me just because I’d had the bad luck to be born a little…*smaller* than other men. My therapist said I had some sort of complex about it, that I needed to get over my own ‘futile desire for masculinity’. My last boss said I didn’t have the ‘proactiveness’ required to succeed when she fired me, but somehow I knew she was talking about my genitals too. Even my mom had called me her sweet ‘petite’ son and reassured me that at least *she* didn’t care that I’d been born so disappointing (her exact words, in her own sweet, loving, mom voice).
+
+But *fuck* those women. And fuck this stuck-up bimbo too.
+
+“You’re just a tease, and you know it. You dress like that on purpose. You run like that on purpose. You *know* your ass is hanging out of your shorts. You *know* you’re not wearing a bra.” She gasped, and covered her chest.
+
+“How do you know I’m not —”
+
+“I can *see* your cute little nipples through your shirt, lady. Right between that cleavage you’re strategically pushing up. You women are all the same, using your body to get what you want. Well, that stops *now*. I am a free man, and I’ll look wherever — *GUUUH!*”
+
+She’d placed her hands on my shoulders. Before I could react, she kneed me in the crotch, very hard. I could feel my balls flatten on either side of her thigh. Pain exploded through me, and I was too shocked to react. My delayed response let her get a second knee, then a third, each stiff blow slamming into my privates hard enough to lift me off the ground. I let out a sort of strangled yelp, and my hands shot between my legs, my knees turning inwards.
+
+She wormed her hands between my thighs and pried them apart, then put her hands back on my shoulders. She was surprisingly strong, her thin feminine arms apparently hiding considerable muscle. Her smooth thighs glistened in the morning sun as she brought her leg back for another devastating blow.
+
+“Please…I’m sorry…” Her knee bruised the back of my hand as she continued her assault.
+
+“I’m sure you are.” *WHUMP-crunch*. Her leg slammed into my balls again.
+
+“My balls…I’m sorry….I’m *sorry!*”
+
+WHUMP-*crunch*. WHUMP-*crunch*. I could hear her counting softly beneath her breath.
+
+*“Six…seven…eight…”* Like she was practicing. Like she *had* practiced. Her tenth knee was extra hard, and I felt something shift sickeningly beneath her knee. I wondered how much sperm count I’d just lost. I tried to ball my hands into fists, to defend my crumbling fertility somehow, but the pain was too much. She continued with her next debilitating set of knees, crunching my balls flatter and flatter with each blow. I heard her count this next set of ten as well, like she was doing nothing more than a routine set at the gym.
+
+After all twenty absolutely devastating blows to my nuts, she let go of my shoulders (although at that point, she was more holding me up by my armpits than anything). I collapsed to the floor, rolling onto my side, coughing and choking. My testicles were burning with agony.
+
+Nausea gripped me, getting worse by the second as I felt bruises bloom across my scrotum. I couldn’t help myself. Leaning over, I lost my lunch at her feet. She scrunched her nose in disgust and backed away.
+
+“Ew. Well, my self-defense instructor, Serena, always says we should always go as hard as we can when defending ourselves.”
+
+I gasped, my feet kicking randomly as I struggled to process the pain between my thighs. “I didn’t attack you…I didn’t even *touch* you…”
+
+She walked behind me, lining her foot up with my nutsack flopping between my thighs, then pulled her foot back and booted me in the balls. Her tennis shoe hit my bloating sack with her full force, and another tier of pain exploded through me. I could only whimper and curl myself closer futilely, my nuts still well-exposed between my thighs.
+
+“You were threatening me. I *felt* threatened. And you were staring. It’s violating. And it's *gross*.” I lurched forward gagging, and she stopped talking long enough for me to throw up again. I could tell something was deeply wrong inside my testicles. The pain was growing, spreading throughout my gonads and body.
+
+“Some girls get anxious, you know. I thought I would be. I’ve never been in a self-defense scenario…”
+
+“You’re…still not…in danger…*christ* I think you broke something…”
+
+“I was worried. But it was easier than I thought.”
+
+She leaned over in front of me. Her tight top dangled down, giving me a delicious view down her modest cleavage. I could almost see her small, dark areolas beneath.
+
+“I normally feel kind of bad when I hit a dude in the crotch, but I really had no problem wailing full-force on your gonads. I guess it helps that I *truly* don’t give a shit about your sex life.”
+
+I raised my head to see her eyes, but at the angle I was at, I couldn’t even manage that. I could only move enough to get myself eye-level with her waist. The pain in my balls was melting my brain. Her tiny yoga shorts outlined her pussy lips in an unmistakable cameltoe. There was a worrying wet *squishiness* inside my ballsack. I could see a hint of her pussy lips peeking out beneath the bottom hem of her microshorts. I could smell her through her shorts, a heady scent of sweat, deodorant and pussy. I'd always wanted to be a father. I think she wasn’t wearing underwear.
+
+Somehow, through my hazy grip on reality, it seemed like her words were coming from her womanhood, her delicious lower lips reprimanding me for having the gall to even look at her body.
+
+My balls flared up with pain again. I lost my last scrap of strength and fell over, still staring up at her tightly pinched, painless, invulnerable slit.
+
+“I don’t *think* I popped your nuts. But I definitely felt something crunch down there. Between you and me, I doubt you’ll be able to have kids. At least, I *really* hope you can’t. If I did it right, you might've lost your boners too.”
+
+“So. Good luck with the rest of your life, you perma-limp, shrimp dicked, infertile fucking *loser*. I hope this teaches you never to *glance* at a woman again.”
+
+Then she jogged off, her bubble butt still jiggling in her tight shorts. Underneath my hands, my dick had grown absurdly hard, and I wailed as I felt it twitch.
+
+My climax hit me with the force of a freight train. I’d always been a quick shot, in the very few times I’d managed to get with a girl. This time proved no different. I bucked and spasmed, getting my teeth as my cock jettisoned every drop of semen from my bruised ballsack.
+
+As I passed into unconsciousness, my babymakers still quivering and nauseatingly mushy beneath my fingers, my cock desperately spurting its precious cargo through my saturated mesh shorts onto the boiling-hot asphalt, I had a feeling every insult she’d levelled at me was permanently accurate.

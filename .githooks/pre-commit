@@ -1,0 +1,4 @@
+#!/usr/bin/env bash
+set -euo pipefail
+repo_root="$(git rev-parse --show-toplevel)"
+source "$repo_root/.githooks/lib/require-preunbb-author.sh"

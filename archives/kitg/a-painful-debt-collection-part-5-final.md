@@ -1,0 +1,42 @@
+---
+title: A painful debt collection Part 5 (Final)
+author: 53550
+posted: "July 10, 2024 at 10:03am"
+source: "https://kickedinthegroin.ning.com/group/bb-storytellers/forum/topics/a-painful-debt-collection-part-5-final"
+slug: a-painful-debt-collection-part-5-final
+---
+Noah could feel his balls getting squished on the floor, as Isabella kept pounding him.
+
+“Fuck, this feels so good!” she took in her hand one of her tits “Suck it!” she said, slamming her thick ass on his balls. She forced him to scream, then put her boob into his mouth. She started riding him harder and faster, hitting his nuts more and more. She grabbed his hair, lost in the pleasure, while grabbing with her free hand his balls. She started squeezing hard, making sure to leave no escape for his nuts.
+
+“Fuck fuck fuck fuck! Harder! HARDER!” She rode him faster and faster, until they both cummed, hard.
+
+“OOOOOOOOOOOOOOOHHHHhhhh…fuuuuuccckk…” she let her head fall on his shoulder, enjoying his last try to suck on his tit and her pussy getting filled with cum.
+
+“Fuuuck. You know what? I’m gonna go for a second round, and maybe a third.” she grabbed his nuts, squeezing with her iron grip “but you're not allowed to like it, after all this is a punishment” she started riding him again. She fucked him, forced him to worship her abs, hammered his nuts, pressing her knuckles deep into his big balls, squished against the floor, she make out with him, she used Noah in every way she could. She got a second round, then a third, then a fourth and so on, until she reached her tenth orgasm.
+
+“Fuuuuucccchh. that was some real sheeeth…” she forces herself up, her pussy dripping with cum. She then stomped on his nuts, grinding her heel in them. As Noah opened his mouth to scream she pushed her pussy deep in it. “Now you gotta face the final challenge! You have to lick out your cum from my pussy, BUT you don’t have to swallow, even if i cum” Noah was scared “Because if you do… Well, let’s just say that, Miss. Johnson will need another round with you, you just have to have a nut i can torture, got it?” the man tried to answer, but her pussy muffled his words “I’ll take it as a yes. And remember, no cum or squirt is allowed to get swallowed, or just out of your mouth. And this includes from your nose.” He started licking, feeling a mix of her juice and his cum flowing into his mouth. She got two orgasms before he finished. “Good boy. Now let’s start.”
+
+She stomped her foot on his balls, crushing it like if she was putting out a cigarette. She grinded them, twisting to right and left, feeling his nuts squishing under her toes.
+
+After one hour straight she stopped. “Good job! I think you deserve a reward.” crushing his jewels with her heel, she started giving him a footjob with her toes. He quickly reaches climax and, as she felt his cum rising in his cock, she gives him a strong kick into his balls, making his dick shoot his load all over his own body. “Did you liked your white shower?” she chuckled “Now the second phase!” she swung her leg back, flexing her strong thigh, then shot it into his balls. Noah muffled a scream, trying to not spitting out anything. Tears of pain streamed down his face. She kicked his jewels again CRACK
+
+She watched him struggling to breath, trying to keep his mouth shut. She started rhythmically kicking him as strong as she possibly can, making sure to destroy his attempts to catch breath. He started coughing, while keeping his mouth shut. She started kicking him faster and faster, pushing him to his limits. He started convulsing harder than he ever has, his eyes crossed. She alternated legs for 3 hours, keeping the intensity of the kicks. To Isabella’s surprise, he managed to not spit anything nor lose his breath.
+
+“I’m impressed! Now to the final phase, but first your reward.” she moved near his face “Open up!” she demanded. Noah opened his mouth, and she spitted multiple times in it.Then she closed his mouth, while hypnotizing him with her big honkers. Then she grabbed her metal baseball bat.Noah’s eyes widened in fear.
+
+“And now the real deal!” she swung her bat into his purplish black nuts, hard. A loud THUD echoed in the room,Noah’s eyes nearly popped out of his sockets, “What’s wrong? Did they hurt? Good!” she swung her bat once more, a loud squish is heard as the bat smashed his nuts. "Ouch! That must have hurt! Let’s do this one more time!” She smashed his jewels again and again. Her bat come like a wrecking ball on his much more black man-eggs, making him cry more and more. Noah was trying his best to not gulp or spit, but he didn’t know how much he could endure. The only thing he knew was that after this, he would absolutely fulfill his debt. Her bat hit his sack again, sending a jolt of pain to Noah’s overwhelmed brain. She then starts using her bat as a hammer, crushing his privates on the floor. The bat goes up and down multiple times, as she enjoyed finding a new way to use it for hitting him between the legs. One time she started using the point to flatter them like pancakes, putting all her weight on it.
+
+She grabbed his head with both of her hands “And now swallow” she watched him gulping down the mix he kept in his mouth for hours.
+
+“Good boy” she sensually said “You really deserve this reward” she put his meat in her again and started riding him hard one last time. She presses her big honkers on his body, twisting his nipples while making out with him again. As she milks him with her pussy, she makes sure to give him the best orgasm of his life. She liked to reward her toys. After he finished shooting his load in her, she stopped making out with him, allowing Noah to fully breathe again.
+
+“I want to leave you a little souvenir, to remind you of me” she stood up, letting his cum drip all over his well toned body “I will be cold and hot because, well, I can be a cold bitch” she stomped down on his nuts multiples times, giving a final stomp on Noah’s dick “or a hot chick” she lowered herself rubbing her cunt on his dick. She started passionately making out with him, while his dick shot his hot cum one more time on his and her abs.
+
+She licked his tears from his face “Aww, don’t cry. Look! I’ve got a lat treatment for you” she released his legs, knowing he was incapable of move, until she could his thigh on her shoulders and come closer to him, making sure to point his dick at his face “This is what i do to a pathetic man that can’t even take a good kick to his precious eggs!” She started jerking him off hard, knowing his dick was so sore from all the cumming it was hurt at every stroke. She took his nuts into her mouth and started biting down and chewing hard on them. In a few seconds he shot his hot cum on his face, multiple times. She milked him hard for fifteen minutes, until his face was fully covered in cum. She let his legs fall on the ground, then tied them up again. “You’re a pathetic excuse of a man, but at least you’re cute!” she said “And your beauty cum-mask will make your skin prettier!” she mocked him “but at least you have a big dick and two nuts perfect for an anti-stress kicking session” she smiled at him “but now back to the souvenir! I need a few things”
+
+After five minutes, she got everything she needed. She put his right nut in a cup of hot water and his left one in a bag full of ice cubes. “Don’t worry, the water won’t boil your nut and the ice won’t burn the other…I think.” She lifted her foot, pressing it on his lips “Sssssh! You know what to do. Devote to me, thank me, worship me” He started kissing her foot, trying to thank her, but the pain was too much even for talking. She enjoyed watching him fighting the pain on hi most sensitive and private part just for worship her foot “Good slave”
+
+She wrote her number on a piece of paper and carefully put it on his dick.
+
+“Call me if you want a booty call! Or a second round. Actually we can do both if you want.” she winked at him “ I’ve loosened the knots so you can free yourself when you get better.” She looked him in the eyes, watered with cries of pain. She took a long moment to enjoy his scream of pain, observing how hard he was convulsing. “Scream all you want, no one will hear you” she teased him, then dressed up again, grabbed her baseball bat and went towards the door. She grabbed the doorknob “Oh, and remember! If you will not return the money, the next time Miss. Johnson will not choose the soft pack” she grinned, proud of her work, then blew him a kiss and exited his home, closing the door behind her.
