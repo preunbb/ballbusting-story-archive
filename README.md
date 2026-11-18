@@ -31,5 +31,3 @@ npm install
 export KITG_EMAIL=… KITG_PASSWORD=…
 npm run scrape:kitg
 ```
-
-Credentials stay in the environment — never commit them.
